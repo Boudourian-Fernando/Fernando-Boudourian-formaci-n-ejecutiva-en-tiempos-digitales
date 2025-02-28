@@ -1,1 +1,2 @@
-# Fernando-Boudourian-formaci-n-ejecutiva-en-tiempos-digitales
+# Fernando-Boudourian-formación-ejecutiva-en-tiempos-digitales
+Las exigencias del liderazgo han cambiado. La educación ejecutiva evoluciona con programas que integran tecnología, sostenibilidad y metodologías flexibles. Inteligencia artificial y aprendizaje inmersivo potencian la toma de decisiones basada en datos. Adaptarse a estos cambios es esencial para liderar con visión estratégica en un entorno incierto.
